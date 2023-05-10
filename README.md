@@ -6,7 +6,7 @@
 
 📮Email: kdj486347@gmail.com
 
-🏠Portfolio: [Notion Link](https://dongjoo00.notion.site/34cf081d7ba04e4eb8f42ea393ff84c7)
+🏠Portfolio: [Notion Link](https://dongjoo00.notion.site/217fe0ad5fe64691a759718297976e44)
 
 <br/>
 
